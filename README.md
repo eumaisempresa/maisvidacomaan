@@ -1,2 +1,0 @@
-# maisvidacomaan
-Comunidade COMAAN
